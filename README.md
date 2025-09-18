@@ -21,5 +21,6 @@ También disfruto viajar, escuchar música a todo volumen 🎶 y compartir momen
 - 📫 Cómo contactarme: [lion2025-art].  
 - ⚡ Dato curioso: me encanta organizar decoraciones en cumpleaños 🎈, y mi lugar favorito es la playa de noche 🏖.
 -✨ Signo favorito: ♌ **Leo**.
+
 -------------------------------------------------------------------------------------------------------------------------
 🌟 Gracias por visitar mi perfil. ¡Estoy en camino de convertirme en una gran profesional de la informática! 🚀
